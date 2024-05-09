@@ -1,0 +1,1 @@
+This site is just a simple recipe to follow
